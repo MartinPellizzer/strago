@@ -3,80 +3,120 @@
 # Exposing Subtle Workplace Bullying: 27 Signs To Watch Out
 
 ## 1. Constant criticism of your work or performance, often in front of others
-Constant criticism of your work or performance, especially when it happens in front of others, can be a major source of frustration and stress in the workplace. It's like being put on blast for every little mistake or imperfection, and it can make you feel like you're constantly walking on eggshells.
+Receiving constant criticism for your work or performance, especially in front of others, can be incredibly frustrating and demoralizing. It's tough to stay motivated when you're constantly being told that you're not good enough.
 
-Imagine this: You're in a meeting, and your boss decides to call out a mistake you made in front of everyone. Or, you're working on a project, and a colleague decides to mock your approach and belittle your ideas. Maybe you're even receiving vague or unhelpful feedback that leaves you feeling confused and frustrated.
+While it's important for managers and supervisors to offer feedback and help employees improve, there is a fine line between constructive criticism and negativity. Here are some examples of what this might look like:
 
-These are all examples of constant criticism that can wear you down over time. It can make you feel like you're not good enough, or like you're constantly falling short of expectations. And when it happens in front of others, it can be even more embarrassing and demoralizing.
+- Your boss interrupts a team meeting to point out all the flaws in your latest project.
+- A coworker makes snide comments about everything you do during group projects.
+- Your supervisor sends multiple emails throughout the day criticizing every little mistake you make.
+- During an annual review, your manager only focuses on what went wrong instead of recognizing any accomplishments.
+- In a brainstorming session, every idea you suggest is shot down immediately without explanation.
 
-But here's the thing: constant criticism is not okay. It's a form of workplace bullying that can lead to decreased job satisfaction, decreased productivity, and even mental health problems like anxiety and depression. And you don't have to put up with it.
+Such constant criticism can easily make us disengaged from our work or even feel defeated entirely - we may just stop putting effort into tasks altogether.
+
+As employees, we deserve respect from those who manage us; they should motivate us through encouragement rather than always putting us down at every turn.
 
 ## 2. Ignoring or excluding you from team activities or meetings
-Ignoring or excluding you from team activities or meetings is not only unprofessional, it's a form of workplace bullying that can make you feel isolated and unvalued. It's like being left out in the cold while everyone else gets to enjoy the warmth of the team dynamic.
+Feeling excluded or ignored within a team can be incredibly frustrating and demoralizing. It's tough to feel motivated when you're constantly left out of important meetings or activities, especially when it affects your ability to contribute effectively.
 
-Here are a few examples of how this kind of behavior might look in the workplace: You're not invited to a team lunch or happy hour, even though everyone else is going. You're not included in an important email chain or meeting, even though you're a key player on the project. Or, you're simply ignored when you try to contribute to a conversation or share your ideas.
+Unfortunately, some managers and co-workers engage in this type of behavior intentionally or unintentionally. Here are some examples:
 
-When this kind of exclusion happens repeatedly, it can feel like a deliberate attempt to push you out of the team or undermine your contributions. And it's not just hurtful - it's also bad for business. Excluding team members from important discussions or decisions can lead to missed opportunities and decreased productivity.
+- You notice that everyone on the team has been invited to a happy hour after work except for you.
+- Your boss holds weekly meetings but never invites you even though they relate directly to your job responsibilities.
+- During a brainstorming session, several coworkers talk over you and ignore your suggestions completely.
+- Your colleagues often make jokes about events that happened during team outings that you weren't invited to attend.
+- A coworker purposely excludes you from email chains related to projects that involve your expertise.
+
+Being left out like this can easily lead us to feeling unmotivated and disengaged from our work altogether - why put in the effort if we don't get any recognition?
+
+As employees, it is vital for us all to feel included in our teams so we can collaborate effectively towards common goals; those who exclude their teammates are doing nothing but harm morale and productivity alike!
 
 ## 3. Undermining your work by providing incomplete or inaccurate information
-Inaccurate or incomplete information can be like a ticking time bomb waiting to explode in your face. Imagine spending hours or even days working on a project only to realize that some critical information was missing, or worse, incorrect. Not only does this waste time and resources, but it can also lead to serious consequences such as missed deadlines, unhappy clients, and even lawsuits.
+It can be incredibly frustrating and demotivating when someone else undermines the quality of your work by providing incomplete or inaccurate information. It makes you feel like a failure, even though it's not necessarily your fault.
 
-This kind of situation is all too common in the workplace, where employees may unintentionally undermine their own work by failing to provide accurate or complete information. For example, a salesperson might promise a client a certain product feature without confirming with the product team whether it is actually possible. Or, a marketing team might publish an advertisement with incorrect pricing information, leading to customer confusion and frustration.
+Have you ever had to deal with this type of behavior before? Perhaps a coworker gave you incorrect data for a report or insisted on using outdated procedures despite knowing better. Or maybe during team meetings, someone frequently shared false information that threw everyone off track.
 
-Even small errors in information can have a big impact. For instance, a missing decimal point in a financial report can result in significant financial losses. Similarly, incomplete information in a medical chart can put patients at risk.
+Here are some other examples:
 
-Inaccurate or incomplete information can also harm team dynamics. When employees don't communicate effectively or provide the necessary information to their colleagues, it can create a sense of mistrust and frustration. Team members may feel like they are constantly chasing down missing information or second-guessing the accuracy of what they are given.
+- A colleague refuses to share crucial details about their part of the project until the last minute.
+- Your boss insists on taking credit for your ideas without giving proper recognition.
+- Someone presents themselves as an expert in a field but provides misleading advice that causes more problems than solutions.
+- A coworker gives vague instructions or withholds important context, leading to confusion and delays in completing tasks.
+- During brainstorming sessions, one person shoots down every idea without offering constructive feedback.
+
+When our coworkers provide us with insufficient or incorrect information, we're almost set up for failure from the outset - which is why accuracy and completeness are so vital! Those who undermine our efforts ultimately hurt morale and productivity alike, making it difficult to stay motivated at work
 
 ## 4. Giving you impossible deadlines or assigning you tasks outside of your skill set
-It's a familiar feeling for many employees: the sinking sensation in your stomach when your boss assigns you a task that seems impossible to complete in the given timeframe or asks you to do something outside of your skill set. This kind of pressure can be frustrating and demotivating, and it can lead to burnout and high turnover rates in the workplace.
+Being given impossible deadlines or tasks that are outside your skill set is like being set up to fail. It's frustrating, demoralizing, and completely unfair."
 
-For example, a graphic designer may be asked to create a complex website from scratch, despite having no coding experience. A sales representative may be given a sales target that is impossibly high, with no additional resources or support to help them achieve it. A project manager may be given an unrealistic deadline to complete a project, with no consideration for the complexity of the work involved.
+Have you ever been in a situation where you're assigned a task that feels almost impossible to complete within the given timeframe? Or perhaps someone has asked you to do something that's entirely outside of your area of expertise?
 
-When employees are given tasks that are outside of their skill set or are impossible to complete in the given timeframe, it can lead to feelings of stress, anxiety, and self-doubt. They may feel like they are set up to fail and that their employer does not value their expertise or abilities.
+Here are some examples:
 
-In addition, impossible deadlines and unrealistic tasks can lead to a culture of overwork and burnout. Employees may feel like they have no choice but to work long hours, sacrifice their personal time, and neglect their well-being in order to meet these expectations.
+- Your boss demands that you finish an entire project over the weekend despite it being intended for a team of people.
+- You're asked to give a presentation on a topic with which you have zero experience.
+- A colleague assigns you work that requires specialized knowledge or skills without providing any training or guidance.
+- Your supervisor insists on adding new requirements to an assignment at the last minute but still expects it submitted by its original due date.
+- Someone else takes credit for your work after assigning tasks well beyond what was reasonable.
+
+When we're given unrealistic timelines or tasks outside our areas of expertise, it can be hard not to feel defeated before we even begin - especially when there's no support offered along the way!
 
 ## 5. Micromanaging your work to an extreme degree
-Micromanaging can feel like a suffocating presence in the workplace. It's the feeling of being constantly monitored and scrutinized, with little to no autonomy over your work. This extreme level of control can be frustrating and demoralizing for employees, leading to low morale and high turnover rates.
+Stop it. Just stop micromanaging your employees or colleagues to the point of exhaustion and frustration. Not only is it counterproductive, but it also creates a toxic work environment that damages morale, motivation, and creativity.
 
-For example, a manager may insist on reviewing every email an employee sends, or demand to be copied on every communication with clients. A supervisor may require daily check-ins or demand to be notified of every minor decision. In extreme cases, micromanagers may even stand over employees' shoulders while they work, monitoring their every move.
+Here are five examples of micromanagement gone wrong:
 
-Micromanagement can be particularly harmful because it undermines employees' sense of ownership and agency over their work. When they are not given the space to make decisions and take ownership of their work, they may feel like they are not valued or trusted by their employer.
+- Constantly checking in on progress without giving enough time to complete tasks.
+- Dictating every aspect of a project without leaving room for collaboration or input from team members.
+- Hovering over someone's shoulder while they work.
+- Criticizing minor details instead of focusing on the big picture.
+- Refusing to delegate tasks because "no one else can do it right."
 
-In addition, micromanagement can lead to a culture of fear and mistrust. Employees may feel like they are being watched constantly, leading to a lack of creativity, risk-taking, and innovation. This can be detrimental to the long-term success of a company, as it stifles the very qualities that drive growth and progress.
+When you micromanage excessively, you undermine trust in your abilities as a leader and create unnecessary stress for everyone involved.
+
+As leaders, we need to empower our teams by setting clear expectations and providing support when needed without suffocating them with constant supervision.
+
+In conclusion, remember that trust is essential in any workplace relationship; if you're not willing to give your team members autonomy and space to grow professionally, then maybe you're not cut out for leadership after all.
 
 ## 6. Making negative or dismissive comments about your ideas or suggestions
-Negative or dismissive comments about your ideas or suggestions can be incredibly demoralizing in the workplace. 
+Have you ever shared an idea or suggestion, only to have it shot down with negative or dismissive comments? It's frustrating and demotivating when people don't take your ideas seriously. Here are some examples of such comments:
 
-You've likely been in a meeting where you share a suggestion or idea, only to be met with eye-rolls, sighs, or outright criticism. These responses can make you feel small, embarrassed, and less likely to contribute in the future. Unfortunately, this behavior is all too common in some workplaces, and it can have a lasting impact on employees.
+- "That won't work because..."
+- "We've never done that before."
+- "I don't think we have the resources for that."
+- "Let's stick to what we know works."
+- "That's not a priority right now."
 
-Consider the following examples:
+These comments can make you feel undervalued and unappreciated. However, it's essential to remember that feedback is necessary for growth and improvement.
 
-- You share a new idea for a project, and a colleague responds with, "That's not going to work. We've tried that before, and it failed."
-- You suggest a different approach to a problem, and your manager responds with, "We've been doing it this way for years. Why would we change now?"
-- You propose a creative solution to a challenge, and a team member responds with, "That's ridiculous. We can't do that."
+Instead of getting defensive, try to understand why someone may be dismissing your idea or suggestion. Are they concerned about the feasibility? Do they lack information on the topic? Or do they have personal biases?
 
-These types of negative or dismissive comments shut down conversation and discourage collaboration. They suggest that your ideas aren't valuable and that your contributions don't matter. Over time, this can lead to decreased motivation, disengagement, and even turnover.
+Use their feedback constructively by asking questions and seeking clarification on their objections. This way, you can improve your proposal while also addressing any concerns raised.
 
-As an employer, it's important to create a culture where all ideas are welcome and encouraged. This means actively listening to your employees, valuing their contributions, and giving constructive feedback. If someone does make a negative or dismissive comment, it's important to address it directly and encourage them to offer a more constructive response in the future.
-
-Remember, your employees are your greatest asset, and their ideas and suggestions can help your business thrive. Don't let negativity and dismissiveness stand in the way of progress and success.
+In conclusion, receiving negative or dismissive comments on your ideas can be discouraging but use them as an opportunity for growth instead of letting them bring you down!
 
 ## 7. Withholding important information that you need to perform your job effectively
-Withholding important information that you need to perform your job is like driving a car blindfolded, and it's a practice that can lead to serious consequences. 
+As an employee, it's infuriating when someone holds back essential information that you need to do your job effectively. Here are a few examples:
 
-As an employee, you rely on your colleagues and superiors to share crucial information that can impact your work performance and decision-making. When that information is withheld, it can create feelings of frustration, confusion, and helplessness. 
+- A coworker neglects to share critical feedback on a collaborative project with clients.
+- Your boss keeps changes in leadership structure under wraps.
+- You only find out about significant deadlines after they've already come and gone.
 
-Here are a few examples of how withholding information can negatively affect employees:
+So what can you do if vital information is being withheld from you? Take these actionable steps:
 
-- A manager fails to inform their team of changes to a project's deadline, resulting in missed deadlines, rushed work, and a decrease in the quality of work produced.
-- An employee is not provided with essential details about a new client, which could lead to a disastrous first impression and damage to the company's reputation.
-- A coworker doesn't share critical information about a software program, resulting in wasted time and effort on the employee's part and the need for additional training.
-- A supervisor fails to communicate important safety procedures, putting employees at risk of injury or harm.
+- Clarify expectations upfront by asking questions and getting specific details regarding deadlines and deliverables.
+- Foster open communication within your team by creating channels for employees to speak up if they feel like they're missing something essential or not receiving enough information.
+- Follow up regularly via email or chat to ensure everyone stays updated throughout projects or assignments.
 
-When information is intentionally withheld, it can create a toxic work environment where trust and collaboration suffer. Employees deserve transparency and honesty from their colleagues and superiors to perform their jobs effectively. So if you're in a position of power, make sure you're providing your team with all the information they need to succeed. 
+Remember that clear communication is fundamental when working towards shared goals in the workplace! By taking charge, asking questions, and fostering open dialogue between team members, we can avoid misunderstandings while increasing productivity and morale overall!
 
-And if you're an employee, don't be afraid to speak up and advocate for yourself when crucial information is being withheld.
+In conclusion, don't let the frustration of withheld information hold you back. Proactively seek out answers, encourage open communication, and take steps towards achieving success together as a team!
+
+
+@ stop
+
+
 
 ## 8. Spreading rumors or gossip about you in the workplace
 "Rumors are like wildfires - they can spread quickly and cause immense damage, especially when it comes to workplace gossip."
